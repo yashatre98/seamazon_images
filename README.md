@@ -1,1 +1,11 @@
 # seamazon_images
+![coffee maker](https://github.com/yashatre98/seamazon/assets/41384564/c9b37424-d789-489b-a63c-c3d55978bf4a)
+![bluetooth speaker](https://github.com/yashatre98/seamazon/assets/41384564/ad145d89-a5e7-4af2-a4e8-e859585a4e44)
+![backpack](https://github.com/yashatre98/seamazon/assets/41384564/7de5050f-7978-471d-a2f6-784963e570d3)
+![yogamat](https://github.com/yashatre98/seamazon/assets/41384564/535dc3fc-6487-4ff5-b773-676ef8ba717a)
+![wireless mouse](https://github.com/yashatre98/seamazon/assets/41384564/c461a102-9496-463a-8fe2-898ade9e7e19)
+![sunglasses](https://github.com/yashatre98/seamazon/assets/41384564/e16b4057-0185-4d9e-bfba-59958864588b)
+![smart watch](https://github.com/yashatre98/seamazon/assets/41384564/91c5e345-8b7b-4dfc-9152-f9d1951c9cf0)
+![running shoes](https://github.com/yashatre98/seamazon/assets/41384564/4728dfd3-cd64-449e-9062-63fd626e48f2)
+![laptop stand](https://github.com/yashatre98/seamazon/assets/41384564/21849932-52ae-4d69-b4dc-88462167df37)
+![electric kettle](https://github.com/yashatre98/seamazon/assets/41384564/c86ce771-42e8-4ea2-a278-a97ba427d226)
