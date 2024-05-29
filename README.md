@@ -101,6 +101,12 @@ electric grill:
   ![eg2](https://github.com/yashatre98/seamazon_images/assets/41384564/b28020a3-150f-40f0-aa7d-2db4542dd579)
   ![electric grill](https://github.com/yashatre98/seamazon_images/assets/41384564/b197a22d-63f6-489c-a19e-b049e843daad)
   ![eg3](https://github.com/yashatre98/seamazon_images/assets/41384564/f6e3d2fd-c1ec-48ff-b5ab-453e5bb9c9b5)
+Yash Atre:
+![Yash-1](https://github.com/yashatre98/seamazon_images/assets/41384564/447266b1-8fe8-4732-8219-e87550ba0dfc)
+![Yash-2](https://github.com/yashatre98/seamazon_images/assets/41384564/fc914517-2d28-4a94-9c0d-0747b38a9d37)
+![Yash-3](https://github.com/yashatre98/seamazon_images/assets/41384564/8ddd67e3-ca73-4521-a954-98d61fb44503)
+
+
 
 
 
